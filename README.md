@@ -1,0 +1,1 @@
+Logo image by [Vectorportal.com](https://www.vectorportal.com), [CC BY](https://creativecommons.org/licenses/by/4.0/)
